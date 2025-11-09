@@ -1,1 +1,0 @@
-# projek-akhir-stupen-revisi
